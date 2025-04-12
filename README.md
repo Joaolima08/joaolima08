@@ -39,7 +39,7 @@
 ### 🌐 Me encontra por aí:
 
 - 🎯 [LinkedIn](https://linkedin.com/in/seu-usuario)  
-- 💌 Email: seuemail@email.com  
+- 💌 Email: joao.lima2412@aluno.ce.gov.br 
 - 🧠 Portfólio (em breve?)
 
 ---
